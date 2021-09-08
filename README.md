@@ -6,7 +6,7 @@
 - 👯 ktv wooooooooo!!!!
 - ⚡ COS
 - 📫 Email me at: [550566181@qq.com](mailto:550566181@qq.com)
-- 🥤 DNF一生黑
+- 🥤 DNF 🪨
 - welcome to visit my [blog](http://tuuna.top)!
 <!-- - 🔭 Currently a research assistant at _Data & AI security Lab_, BIT. -->
 <!-- 🥑 [Gridsome](https://github.com/gridsome) collaborator, [BITNP](https://github.com/BITNP) member. -->
